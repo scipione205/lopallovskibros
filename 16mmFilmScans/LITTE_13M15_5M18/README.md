@@ -17,4 +17,8 @@ Camera and lens has been serviced and collimated by Danny van Deventer of [Cinef
 
 The Experimental Lab of Self-taught Cinema has been founded by The Lopallovski Bros. Carlo Lopez and Chiara Vallo.
 
+## YOUTUBE PREVIEW HERE:
+
+[FullHD Telecine](https://www.youtube.com/watch?v=TAuiC3S3Kn8)
+
 ## CC BY-NC-SA
