@@ -11,7 +11,7 @@ However, the lab joined two slices of film so you will see:
 
 Processing and scan: Augustus Color, Rome.
 
-The ANgenieux 12-120 was donated to the Lopallovski Bros. by [Marco Montenegro](https://www.instagram.com/1marcomontenegro/) of Nocturno Films LLC, Las vegas NV - USA.
+The Angenieux 12-120 was donated to the Lopallovski Bros. by [Marco Montenegro](https://www.instagram.com/1marcomontenegro/) of Nocturno Films LLC, Las vegas NV - USA.
 
 Camera and lens has been serviced and collimated by Danny van Deventer of [Cinefacilities](http://www.cinefacilities.com) Amsterdamn NL.
 
