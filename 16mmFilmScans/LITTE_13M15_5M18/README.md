@@ -19,14 +19,14 @@ Camera and lens has been serviced and collimated by Danny van Deventer of [Cinef
 
 The Lab of Self-taught Cinema- Experimental (STCL-X) has been founded by The Lopallovski Bros. Carlo Lopez and Chiara Vallo.
 
-Actress: Chiara Vallo
-Cinematographer and Camera Operator: Carlito López
-1AC: Giuseppe Mengele
-2AC / Cinematography intern: Elisabetta Laneve
-MU & Hair: Exenia Canepa
-Production Design and Special MU: José Cast
-Gaffer: Carlo Calizzi
-Best Boy Electric and Key Grip: Giuseppe Mengele
+- Actress: Chiara Vallo
+- Cinematographer and Camera Operator: Carlito López
+- 1AC: Giuseppe Mengele
+- 2AC / Cinematography intern: Elisabetta Laneve
+- MU & Hair: Exenia Canepa
+- Production Design and Special MU: José Cast
+- Gaffer: Carlo Calizzi
+- Best Boy Electric and Key Grip: Giuseppe Mengele
 
 Members of the STCL-X:
 - Elisabetta Laneve
